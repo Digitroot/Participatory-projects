@@ -1,0 +1,2 @@
+# Participatory-projects
+dear colleagues we are in a world in perpetual change this is what affects our life in all its forms...professional...family...daily...so our tasks must be done in collaboration with others for better act in any case that presents itself to each of us throughout the world without giving a chance to the companies that hold our destiny and that of our future fellow citizens. the choice of our actions determines our future life.
